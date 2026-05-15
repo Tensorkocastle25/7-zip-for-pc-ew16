@@ -1,4 +1,4 @@
-# 
+# Get the ultimate 7-Zip for PC | 7-Zip for Windows module with updated 7-Zip for PC | 7-Zip for Windows Module | solid-archives + context-menu-integration. Featuring solid-archives
 
 
 
